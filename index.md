@@ -9,6 +9,12 @@ London
 W1U 6ED
 07451283589
 
+[BlogSpot](https://tantricteasemassagelondon.blogspot.com/)
+[Twitter](https://twitter.com/TeaseLondon)
+[Tumblr](https://tantricteasemassage.tumblr.com)
+[Diigo Profile](https://www.diigo.com/profile/tantrictease)
+[About.me](https://about.me/Tantricteasemassage)
+[Link.tree](https://linktr.ee/tantricteasemassage)
 
 [Business Site](https://tantric-tease-massage.business.site/)
 
